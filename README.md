@@ -5,7 +5,7 @@
 - 📫 How to reach me? habibi come to chennai.....
 - 😄 social media:
 - https://www.instagram.com/___silent___killer___/
-- https://www.threads.net/@___silent___killer___
+- https://www.threads.net/@___silent___killer__
 - https://www.linkedin.com/in/g-s-pradeep-kumar-991718286/
   
 - ⚡ Fun fact: 
